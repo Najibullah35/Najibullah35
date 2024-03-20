@@ -2,7 +2,7 @@
 - 👀 I’m interested in working at any governmental or non governmental organization.
 - 🌱 I’m currently unemployed and looking for a suitable job
 - 💞️ I’m looking to collaborate on any kind of work related to administrative support and data collections.
-- 📫 How to reach @ email:- najibullahshuaib@gmail.com/ phone nimber:- +2348088688882
+- 📫 Reach me @ email:- najibullahshuaib@gmail.com/ phone nimber:- +2348088688882
 - 😄 Pronouns: English 
 - ⚡ Fun fact: Research and Reading
 
